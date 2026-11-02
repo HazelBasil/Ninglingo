@@ -1,5 +1,6 @@
 # **NingLingo: Learn Chinese with 刘宇宁 Liu Yuning Playlist**
 ## **For Korean and English Bilingual Learners / 한영 이중언어 학습용** 
+
 <img src="images/ningtutor.gif" width="800" hieight = "500" alt="Description of GIF">
 
 ### Where to Find 刘宇宁 Liu Yuning
