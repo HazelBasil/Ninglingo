@@ -1,5 +1,5 @@
-# ** NingLingo: Learn Chinese with 刘宇宁 Liu Yuning 's playlist （for  **
-## ** For Korean and English Bilingual Learners / 한영 이중언어 학습용 ** 
+# **NingLingo: Learn Chinese with 刘宇宁 Liu Yuning 's playlistr**
+## **For Korean and English Bilingual Learners / 한영 이중언어 학습용** 
 ### Find 刘宇宁 Liu YuNing
 - Verified Artist Page on [Spotify ](https://open.spotify.com/artist/5k5iMDK1nWLbb0eqMnpuKl?si=nG7xCS-eSvqHpEqfafs12A
 - Verified Offical Channel on [YouTube] (https://www.youtube.com/@LiuYuning-Official)
